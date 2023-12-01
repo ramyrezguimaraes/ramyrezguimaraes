@@ -1,5 +1,5 @@
 ## Boas vindas ao meu perfil :)
-Meu nome é Ramyrez, tenho 21 anos, sou completamente apaixonado por tecnologia e pessoas.
+Meu nome é Ramyrez, tenho 21 anos, sou completamente apaixonado por tecnologia.
 Atualmente estudo ADS na Eniac e estou em busca de um estágio.
  <br>
 
